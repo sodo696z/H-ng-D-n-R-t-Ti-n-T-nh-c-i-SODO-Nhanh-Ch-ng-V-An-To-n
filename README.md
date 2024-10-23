@@ -50,3 +50,14 @@ Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodo_casino #số_đỏ_casino
 
+https://www.pinterest.com/pin/1051801688021519117
+https://500px.com/photo/1102550330/z5954384970950_227b8863b7060ca02c5b8e6bfff74728-by-adelle-schank
+https://sodo696z.blogspot.com/2024/10/huong-dan-rut-tien-tu-nha-cai-sodo.html
+https://github.com/sodo696z/H-ng-D-n-R-t-Ti-n-T-nh-c-i-SODO-Nhanh-Ch-ng-V-An-To-n/blob/main/README.md
+https://sites.google.com/view/sodo696z/home/15
+http://so697z.xim.tv/tin-tuc/huong-dan-rut-tien-tu-nha-cai-sodo-nhanh-chong-va-an-toan-new83491.html
+https://www.notebook.ai/documents/1443774
+https://x.com/sodo696z8566/status/1848351324284588037
+https://www.diigo.com/item/note/b7g42/6d38?k=6e670ebafeaabd8c5ca33b65d460c1f4
+https://band.us/band/96481707/post/16
+https://zenwriting.net/adf52i3qsj
